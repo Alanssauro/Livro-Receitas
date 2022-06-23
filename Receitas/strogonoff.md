@@ -21,4 +21,4 @@
 
  3 - Adicione a mostarda e finalize ( ja com o fogo desligado) com o creme de leite
 
- 4 - Sirva com arroz brando e batata palha 
+ 4 - Sirva com arroz branco e batata palha 
